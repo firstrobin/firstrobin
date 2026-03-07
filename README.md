@@ -3,5 +3,5 @@
 
           ͜               | ͜͝ |⑅ ᰍ $${\color{lightblue}Welcome \space !}$$ 𓎢𓎟   ˳ Ი~~𐑼~~ .ꪆ୧ ⌢◝       ***Be free to whisper!***
           
-       [Rentry ♡ ]( https://rentry.co/ironflst)
-      [Join my nightwing server!](https://discord.gg/2Cj6hz2V)                                               ![](https://media.discordapp.net/attachments/1474471772744187917/1475123744677826600/tumblr_2a9772f639f4b5e9ce07a9e4cf73a0c2_b5e04f52_1280.png?ex=699c578b&is=699b060b&hm=3332a9bc04ed010a3fc78e8599846d282fc308ffa407bf8b4be129d8184c276e&=&format=webp&quality=lossless&width=1600&height=161)
+       [Rentry ♡ ]( https://rentry.co/ironflst)  [Join my nightwing server!](https://discord.gg/2Cj6hz2V) 
+                                                    ![](https://media.discordapp.net/attachments/1474471772744187917/1475123744677826600/tumblr_2a9772f639f4b5e9ce07a9e4cf73a0c2_b5e04f52_1280.png?ex=699c578b&is=699b060b&hm=3332a9bc04ed010a3fc78e8599846d282fc308ffa407bf8b4be129d8184c276e&=&format=webp&quality=lossless&width=1600&height=161)
