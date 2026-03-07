@@ -1,4 +1,4 @@
-˙𓈒✿ᴗ͈ ‸ ᴗ͈)           *Love u .*                           ![](https://komarev.com/ghpvc/?username=your-firstrobin&color=1fc3fc&-username&label=escrimasticks&style=flat-square) 
+˙𓈒✿ᴗ͈ ‸ ᴗ͈)           *Love u .*                    ![](https://komarev.com/ghpvc/?username=your-firstrobin&color=1fc3fc&-username&label=escrimasticks&style=flat-square) 
 ![img](https://media.discordapp.net/attachments/1474471772744187917/1475118784280006749/Untitled600_20260222141433.png?ex=699c52ec&is=699b016c&hm=1ce8f11bc93e0f2b32a47c87fab02ee878a3c53d04b0c2097e92092aa5bc2a5f&=&format=webp&quality=lossless&width=1200&height=675)
 
           ͜               | ͜͝ |⑅ ᰍ $${\color{lightblue}Welcome \space !}$$ 𓎢𓎟   ˳ Ი~~𐑼~~ .ꪆ୧ ⌢◝       ***Be free to whisper!***
